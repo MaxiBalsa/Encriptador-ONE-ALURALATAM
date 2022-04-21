@@ -1,1 +1,0 @@
-# Encriptador-ONE-ALURALATAM
